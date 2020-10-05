@@ -11,3 +11,8 @@ I am married to the love of my life, Tatiana. We've been together since my senio
 ![image](https://user-images.githubusercontent.com/71666302/95036615-12796380-068e-11eb-95b5-a02cd0466ed2.png)
 
 In my free time, I enjoy working on my 1989 Dodge Dakota, which I recently rebuilt the engine of. I also like to shoot guns (I personally own 5 firearms). On top of that, I enjoy rebuilding my old childhood lego sets. My favorite hobby to do, however, is relax and play video games like [Call of Duty](https://www.callofduty.com/home), [Star Wars Battlefront II](https://www.ea.com/games/starwars/battlefront/star-wars-battlefront-2), etc.
+
+
+
+
+Return Home: [Home](Index.md)
